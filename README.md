@@ -1,1 +1,1 @@
-https://sano.google.com/view/sanotech/home
+https://sanotech.com/view/sanotech/home
