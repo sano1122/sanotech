@@ -1,3 +1,1 @@
-
-https://sanotech.com/view/sanotech/home
-](https://sites.google.com/view/sanotech/home)
+google-site-verification=2XXLaVErs19rgBU_Y2Ienqyo5ruTSmD7KdvVy7TzEm4
